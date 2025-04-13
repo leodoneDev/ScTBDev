@@ -4,5 +4,6 @@ Because nowadays, freelancer terms and policies are very serious, so obviously I
 I hope you understand me.
 
 Me Account:
-Team: live:.cid.167381dd7c5d5f62
+Team: live:.cid.167381dd7c5d5f62    smartdev125@outlook.com
+
 Google Chat: leodone125@gmail.com
